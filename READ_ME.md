@@ -4,3 +4,4 @@ Leon Spear was here, lis880@gmail.com
 Luke Parker was also here, lukefparker@yahoo.com
 Alexia Rojas was here, arojas2@my.loyno.edu
 Nika!
+Ernest Boasiako...also present tsenre4lif@gmail.com
