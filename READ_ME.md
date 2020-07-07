@@ -9,6 +9,6 @@ sasha kabartay sxk129830@utdallas.edu
 Hangil too was here! hryu@brandeis.edu
 Matt Darsey just passing by, mfdarsey@gmail.com
 Alexia Rojas second try!  arojas2@my.loyno.edu
-Morgan is here right now, morganafontaine@gmail.com
+Morgan F is here right now, morganafontaine@gmail.com
 Joseph was here! josephjhammonds@outlook.com
 Svitlana Postolovska was here! svitpostolovska@gmail.com
